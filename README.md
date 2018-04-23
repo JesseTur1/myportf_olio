@@ -1,3 +1,6 @@
+######## Website of very good 
+####### Jesse Turunen TTV17 s2 gaming video _ game side inseneer
+###### is portfolio has info
 ##### myportf_olio
 ### sgrlknsgkn
 ## aaa computor
